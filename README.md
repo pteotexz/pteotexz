@@ -1,6 +1,8 @@
 # Introduction 
 
 Hi! My name is Paul Teogalbo. I am an Electronics Engineer and Educator. I love to tinker with all things electronics and electricity. I am currently working on my next electronics project! I also play videogames! 
+- 💬 Ask me about Computer Electronics!
+- 📫 How to reach me: pteogalbo@gmail.com
 ##
 FOLLOW ME ON 
 
@@ -17,5 +19,4 @@ YT: [youtube.com/pteotexz](https://www.youtube.com/pteotexz)
 
 twitch.tv: [https://www.twitch.tv/pteotexz](https://www.twitch.tv/pteotexz)
 
-- 💬 Ask me about Computer Electronics!
-- 📫 How to reach me: pteogalbo@gmail.com
+
