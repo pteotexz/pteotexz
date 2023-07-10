@@ -8,7 +8,7 @@ FOLLOW ME ON
 
 <a href="https://imgur.com/LijCFQA"><img align="left" img src="https://i.imgur.com/LijCFQA.png" title="source: imgur.com" /></a>
 <a href="https://imgur.com/tzHPMZt"><img align="center" img src="https://i.imgur.com/tzHPMZtt.png" title="source: imgur.com" /></a>
-<a href="https://imgur.com/Z1Ev3Bm"><img src="https://i.imgur.com/Z1Ev3Bmt.png" title="source: imgur.com" /></a>
+<a href="https://imgur.com/Z1Ev3Bm"><img align="left" img src="https://i.imgur.com/Z1Ev3Bmt.png" title="source: imgur.com" /></a>
 
 INSTAGRAM: [@heromatrixfusion_](https://www.instagram.com/heromatrixfusion_/)
 
