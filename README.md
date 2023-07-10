@@ -6,17 +6,17 @@ Hi! My name is Paul Teogalbo. I am an Electronics Engineer and Educator. I love 
 ##
 FOLLOW ME ON 
 
-![image](https://github.com/pteotexz/pteotexz/assets/39016104/0ed79bcf-323f-413e-b4dc-9db317ec0c8a)
+<a href="https://imgur.com/LijCFQA"><img align="left" img src="https://i.imgur.com/LijCFQA.png" title="source: imgur.com" /></a>
+<a href="https://imgur.com/tzHPMZt"><img align="center" img src="https://i.imgur.com/tzHPMZtt.png" title="source: imgur.com" /></a>
+<a href="https://imgur.com/Z1Ev3Bm"><img src="https://i.imgur.com/Z1Ev3Bmt.png" title="source: imgur.com" /></a>
 
 INSTAGRAM: [@heromatrixfusion_](https://www.instagram.com/heromatrixfusion_/)
 
-![image](https://github.com/pteotexz/pteotexz/assets/39016104/b6dc1db5-2251-45ec-80be-b7cc5dc1f321)
-
 YT: [youtube.com/pteotexz](https://www.youtube.com/pteotexz)
 
+twitch: [https://www.twitch.tv/pteotexz](https://www.twitch.tv/pteotexz)
 
-![image](https://github.com/pteotexz/pteotexz/assets/39016104/15126574-da8a-4dc4-aa56-6ee55a5859a3)
 
-twitch.tv: [https://www.twitch.tv/pteotexz](https://www.twitch.tv/pteotexz)
+
 
 
