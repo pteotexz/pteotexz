@@ -12,9 +12,11 @@ FOLLOW ME ON
 
 INSTAGRAM: [@heromatrixfusion_](https://www.instagram.com/heromatrixfusion_/)
 
+twitch: [https://www.twitch.tv/pteotexz](https://www.twitch.tv/pteotexz)
+
 YT: [youtube.com/pteotexz](https://www.youtube.com/pteotexz)
 
-twitch: [https://www.twitch.tv/pteotexz](https://www.twitch.tv/pteotexz)
+
 
 
 
